@@ -1,4 +1,4 @@
-# 
+# Smart FreshBooks scripts for Mac OS | Professional FreshBooks scripts for PC Windows. Featuring offline access and investment tracking — optimized for maximum performance on every platform.
 
 
 
